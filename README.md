@@ -1,4 +1,4 @@
-# 👋 Hey there! I'm Anthony Kipkoech (marktony908)
+# 👋 Hey there! I'm Kipkoech Tony (marktony908)
 
 ## 🚀 Full-Stack Developer | Passionate About Scalable Applications
 
